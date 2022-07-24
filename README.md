@@ -1,6 +1,4 @@
-w👋 Hi, GOODMORNING!
-
-# /本周背诵经文/
+👋 Hi, GOODMORNING!
 
 # /今日与恩典同行/
 
